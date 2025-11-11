@@ -1,4 +1,4 @@
-genesis/contagious/privation - 18 yo w a job
+vessel/rosy/ames or genesis/contagious - 18 yo w a job
 
 artist sapphic fiaspec she/it/one only please
 
