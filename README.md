@@ -1,4 +1,4 @@
-vessel/rosy/ames or genesis/contagious - 18 yo w a job
+exe/exie, rosy/ames or genesis - 18 yo w a job
 
 artist poly sapphic she/it/one only
 
